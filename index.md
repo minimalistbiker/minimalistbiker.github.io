@@ -1,1 +1,0 @@
-To adventure and freedom
